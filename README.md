@@ -98,3 +98,21 @@ Contudo, sou plenamente consciente de minhas limitações humanas. Reconheço qu
 Este versículo incentiva os crentes a avaliar cuidadosamente todas as coisas, mantendo o que é verdadeiro e bom de acordo com os ensinamentos cristãos.
 
 
+## ▶ Fluxo Lógico 🧠
+
+## Conhecendo a Deus
+- Quais os atributo de Deus
+- Qual é vontade de Deus
+- 
+
+## Conhecendo a Jesu
+## Conhecendo o Espírito Santo de Deus
+## Conhecendo a Bíblia, sagrada Escrituras
+## Deus e a Criação (As maravilhas da lei de Deus)
+- Providência Divina vs Riqueza/pobreza
+- Hieraquia Divina vs Hieraquia Humana
+## A contaminação do Santuário (Herança do homem = morte)
+## O dom gratuito de Deus (Herança de Jesus = Vida e, Vida em abundância)
+- Deus não gosta de injustiça
+## Reino de Deus Vs Reino dos Homem
+
