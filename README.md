@@ -1,4 +1,4 @@
-## Visão Geral 📄🧐
+# Visão Geral 📄🧐
 
 Para desenvolver os temas propostos no livro **`"Dossiê Lei e Graça"`**, é importante abordar de forma equilibrada e detalhada como a graça e a lei se manifestam tanto no Antigo quanto no Novo Testamento, destacando a continuidade e a complementaridade entre esses dois conceitos fundamentais da teologia cristã. Aqui estão algumas ideias e diretrizes que podem ajudá-lo a estruturar seu estudo e escrita:
 
@@ -24,9 +24,8 @@ Para desenvolver os temas propostos no livro **`"Dossiê Lei e Graça"`**, é im
 
 2. **Equilíbrio Teológico:** É crucial evitar a antinomia (a ideia de que a graça anula a necessidade de obediência à lei) e o legalismo (a ideia de que a salvação é alcançada pela obediência à lei). Enfatize que a salvação é pela graça, através da fé, e essa fé se manifesta em obras (obdiência a Deus e suas leis) como fruto da gratidão e do amor a Deus.
 
----
 
-### **Equilíbrio Teológico: Graça, Fé e Obediência**
+# **Equilíbrio Teológico: Graça, Fé e Obediência**
 
 É fundamental manter um equilíbrio teológico que reconheça tanto a centralidade da graça para a salvação quanto a importância da obediência como manifestação da fé. A salvação é um dom gratuito de Deus, alcançado pela graça através da fé em Jesus Cristo. Esta fé, autêntica e viva, naturalmente se expressa em obras de obediência, refletindo um coração transformado pela graça. Aqui, distinguimos dois aspectos complementares da obediência:
 
@@ -98,14 +97,14 @@ Contudo, sou plenamente consciente de minhas limitações humanas. Reconheço qu
 Este versículo incentiva os crentes a avaliar cuidadosamente todas as coisas, mantendo o que é verdadeiro e bom de acordo com os ensinamentos cristãos.
 
 
-## ▶ Fluxo Lógico 🧠
+# ▶ Fluxo Lógico 🧠
 
 ## Conhecendo a Deus
 - Quais os atributo de Deus
 - Qual é vontade de Deus
 - 
 
-## Conhecendo a Jesu
+## Conhecendo a Jesus
 ## Conhecendo o Espírito Santo de Deus
 ## Conhecendo a Bíblia, sagrada Escrituras
 ## Deus e a Criação (As maravilhas da lei de Deus)
@@ -115,4 +114,22 @@ Este versículo incentiva os crentes a avaliar cuidadosamente todas as coisas, m
 ## O dom gratuito de Deus (Herança de Jesus = Vida e, Vida em abundância)
 - Deus não gosta de injustiça
 ## Reino de Deus Vs Reino dos Homem
+
+- resumo de `A contaminação do Santuário (Herança do homem = morte)` e `O dom gratuito de Deus (Herança de Jesus = Vida e, Vida em abundância)`
+
+## A oração
+
+## A lei
+- Mostrar a lei de Deus sem o legalismo religioso 
+
+## A graça
+- Mostrar a graça de Deus não é abolir a lei
+## Grata Nova,Doce Nova: Deus é luz, Deus é Amor
+
+- Na cruz estão unidos a justiça e o amor
+
+
+
+
+
 
