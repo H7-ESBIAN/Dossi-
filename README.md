@@ -119,6 +119,10 @@ Este versículo incentiva os crentes a avaliar cuidadosamente todas as coisas, m
 
 ## A oração
 
+## A santidade
+
+- Versículo base: Não se conformes com as coisas desse mundo
+
 ## A lei
 - Mostrar a lei de Deus sem o legalismo religioso 
 
