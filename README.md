@@ -132,7 +132,7 @@ Este versículo incentiva os crentes a avaliar cuidadosamente todas as coisas, m
 
 - Na cruz estão unidos a justiça e o amor
 
-
+## Os Dez mandamentos
 
 
 
